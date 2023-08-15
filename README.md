@@ -1,2 +1,3 @@
-# eduardo99
- A vida é muito curta para se fazer o que não gosta.
+PAULO EDURADO RODRIGUES KRACZKOWISKI
+@paulo.kraczkowiski@escola.pr.gov.br
+seja bem-vindo
