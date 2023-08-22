@@ -1,3 +1,5 @@
 PAULO EDURADO RODRIGUES KRACZKOWISKI
-@paulo.kraczkowiski@escola.pr.gov.br
-seja bem-vindo
+
+-@paulo.kraczkowiski@escola.pr.gov.br
+
+-seja bem-vindo
